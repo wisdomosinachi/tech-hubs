@@ -140,6 +140,9 @@ Umugasi Aba, Abia
 * [Innovation Growth Hub](https://ighub.com.ng/)
 ighub, 39 New Market Rd, City Centre 434212, Onitsha
 
+* [Solec Netlinks Nigeria limited](https://solecnetlinks.com/)
+  Opposite MTN Office, Solec Office, second Floor, 60b old market road, Onitsha, Anambra State.
+
 
   
 ## Bauchi
