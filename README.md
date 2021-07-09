@@ -142,6 +142,9 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 
 - [Innovation Growth Hub](https://ighub.com.ng/)
   ighub, 39 New Market Rd, City Centre 434212, Onitsha
+  
+  - [WebberTM](https://webbertm.com/)
+    19 Abakaliki Street, Temp Site, unizik Junction, Awka, Anambra State
 
 ## Bauchi
 
